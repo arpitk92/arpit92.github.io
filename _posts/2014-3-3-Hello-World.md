@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Only If They Could Die
+title: Only If He Could Die
 ---
 
 The world is full of stories. In any time or place everyone is a part of their own tales. But some stories become so eternal that they are remembered even after their time passes away.
@@ -77,7 +77,7 @@ As he was about to let himself go in eternal slumber he felt lips on his lips ki
 It was Elina. As they kissed Elina poured the entire water back into Mar's mouth. 
 It was their first and the last kiss.
 
-It is said that even today that Marauder roams his world in search of anything that can help him get a second kiss from his long lost love.
-
+It is said that Marauder has been roaming his world for centuries to get back his love.
+But that could happen ONLY IF HE COULD DIE...
 
 
