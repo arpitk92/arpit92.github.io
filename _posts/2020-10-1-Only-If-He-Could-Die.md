@@ -3,7 +3,7 @@ layout: post
 title: Only If He Could Die
 ---
 
-<h6>
+<p>
 The world is full of stories. In any time or place everyone is a part of their own tales. But some stories become so eternal that they are remembered even after their time passes away.
 But this story is not of this time or even this world. There was a world beyond this time and land. A world so similar to our own, yet so different. 
 In my opinion that world was more special than our own. The lands of that world were not only habitated by mankind but by many more intelligent species.
@@ -80,5 +80,4 @@ It was their first and the last kiss.
 
 It is said that Marauder has been roaming his world for centuries to get back his love.
 But that could happen ONLY IF HE COULD DIE...
-
-</h6>
+</p>
