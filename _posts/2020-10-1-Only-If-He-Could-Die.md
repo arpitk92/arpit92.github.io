@@ -3,13 +3,14 @@ layout: post
 title: Only If He Could Die
 ---
 
+<div style="font-size:15px">
 <p>
 The world is full of stories. In any time or place everyone is a part of their own tales. But some stories become so eternal that they are remembered even after their time passes away.
 But this story is not of this time or even this world. There was a world beyond this time and land. A world so similar to our own, yet so different. 
 In my opinion that world was more special than our own. The lands of that world were not only habitated by mankind but by many more intelligent species.
 Some of those species like fairies, giants , dwarves were like out of some bed time stories. But some of them were no more than a nightmare.
 </p>
-</p>
+<p>
 But this story is not about the races or that world in particular. This story is two beings who might have been each others entire world. This is a story about love.
 </p>
 <p>
@@ -83,6 +84,7 @@ Understanding his mind the fairy loosened her grip around Mar.
 <p>
 "My name is Elina." said the fairy as she gave a hand to Mar to help him get up.
 </p>
+<p>
 From that point Mar just stayed for a couple of years in that Forest just for the view and delicious fruits(that is what Mar said to Elina).
 Elina's curiosity grew into something else in that course of time. They both grew closer, but never said anything.
 </p>
@@ -114,3 +116,4 @@ It was their first and the last kiss.
 It is said that Marauder has been roaming his world for centuries to get back his love.
 But that could happen ONLY IF HE COULD DIE...
 </p>
+</div>
