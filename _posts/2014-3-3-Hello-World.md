@@ -36,5 +36,9 @@ Without wasting a moment Mar rushed down the hill towards the edge of the jungle
 Now moving even deeper into the jungle he spotted some really preculiar winged kid like beings. They resembled tiny stuffed dolls from our world but with wings. Mar knew they posed no threat to him so he moved forward. It took some time but Mar had finally managed to reach the foot of the hill. The climb was really steep almost perpendicular. No ordinary man would even dare to climb that hill. But Mar was no ordinary man. 
 
 He started his climb up the hill. While his ascent something wierd or even supernatural happened. The canopy shifted once or twice to break Mar's fall to the ground when he lost his balance. Jilting this happening as luck he continued his climb. Soon he was up top. By the time Mar had finished his climb it was already dark even above the canopy.
+
 The first view after his climb was something so magnificent and magnanimous in itself that even a blind man would cry at the beauty of the creation.
-Under the dark night sky there was a tree with his gianormous roots going deep in the hill. The tree bore fruits that twinkled like golden fruits. A small straem of rive
+Under the dark night sky there was a tree with his gianormous roots going deep in the hill. The tree bore fruits that twinkled like golden fruits. A small stream of water poured out of the trunk of the tree. That stream fed to a very small pond in the middle of the hill. It was in that pond a silver fountain of that water sparkled in the moonlight. 
+
+Mar did not take much time to understand that he was witnessing the fountain of immortality. He paced towards the fountain to drink as a mortal man for one last time. But his heed pace was broken as now a thick branch had caught his leg and had crawled up his body to tangle around his neck. 
+
